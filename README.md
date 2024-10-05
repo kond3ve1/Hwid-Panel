@@ -1,6 +1,6 @@
 # Download - [!click!]()
 
-# Instructions - [Click]()
+# Instructions - [Click](https://github.com/kond3ve1/Hwid-Panel/blob/main/Instructions)
 
 # ***Key features***
 Disk Spoofing - [18.05.23]

